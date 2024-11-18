@@ -1,2 +1,2 @@
 # Portfolio
-My name is Opeye,i
+My name is Opeyemi, i am a Data Analyst
